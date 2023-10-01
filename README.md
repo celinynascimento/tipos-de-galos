@@ -1,3 +1,3 @@
 < ![Logo](https://i.redd.it/flnoqffobwj61.jpg)
 < ![Logo](https://pbs.twimg.com/media/DfihO3RX4AA0naH?format=jpg&name=small)
-< ![Logo] (https://imageproxy.ifunny.co/crop:square,resize:320x,quality:90x75/images/3b429dda51bc666e031f7cefbfa2e3e813823bdae05ef044d0df4cf46076c803_3.jpg)
+< ![Logo](https://img.quizur.com/f/img5f0c8a13110700.46209823.jpg?lastEdited=1594657305)
